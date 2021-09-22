@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @divsssclZ
+- 👀 I’m interested in video games and coding.
+- 🌱 I am from chile.
+- 📫 How to reach me @! 𝓭𝓲𝓿𝓼𝓼𝓼#9538 in discord.
